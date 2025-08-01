@@ -1,6 +1,6 @@
 - 👋 Hi, I’m @AWAIS-TANVEER5839
 - 👀 I’m interested in developing a websites
-- 🌱 I’m currently learning abbottabad university of sciencen technology
+- 🌱 I’m currently learning abbottabad university of science & technology
 - 💞️ I’m looking to collaborate on ...
 - 📫 How to reach me ... 03181556110 , awaistanveer210@gmail.com
 - 😄 Pronouns: ...
